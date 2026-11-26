@@ -1,0 +1,3 @@
+The office printer only ever jams when there's a deadline — clearly it has better time management than I do.
+
+Why it works: It observes a universal office truth — printers reliably fail at the worst possible moment — then turns it around with the unexpected idea that the printer is actually competent, just with priorities opposite to ours. The turn lands in the last clause, the line reads in one breath, and every word earns its place.
